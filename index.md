@@ -13,7 +13,7 @@ My mom's address is: [927 Taylor St.](https://maps.app.goo.gl/zSnGNQK8uqsS5rnd9)
 Past the kitchen is the laundry room. The light to the laundry room is on the kitchen side to the left of the laundry room door. The best way to let Harri out without Trevor getting out is to have Harri join you in the laundry room and close that door, then open the door to the back yard. The back yard is very secure. He'll go out for maybe 30 seconds to do his business, then run right back in. For his nighttime outting, he can have a dog treat (on the stove) when he comes back in. That's it. Super simple.
 
 ## Feeding the Animals
-I'll leave cans of both dog and cat food on the stove, along with the can opener. Please give Harri half a can of dog food and Trevor 1/2 to 3/4 of a can of cat food. For the sake of simplicity, just go ahead and open a fresh can each time and put what is left in the can in the fridge. I'll leave can covers and foil on the stove. That way you don't have to fuss with warming cold food.
+I'll leave cans of both dog and cat food on the stove, along with the can opener. Please give Harri 1/2 a can of dog food and Trevor 1/2 a can of cat food. For the sake of simplicity, just go ahead and open a fresh can each time and put what is left in the can in the fridge. I'll leave can covers and foil on the stove. That way you don't have to fuss with warming cold food.
 * Harri takes his 1/2 can of food chopped up in the empty red bowl on the ground to the right as you enter the kitchen.
-* Trevor takes his 1/2-3/4 can of food on the piece of furniture in the dining room under the window. I'll leave little bowls for his food on the stove. You can just throw the previous dirty bowl in the sink.
+* Trevor takes his 1/2 can of food on the piece of furniture in the dining room under the window. I'll leave little bowls for his food on the stove. You can just throw the previous dirty bowl in the sink.
   
