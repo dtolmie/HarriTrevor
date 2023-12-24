@@ -13,6 +13,6 @@ Past the kitchen is the laundry room. The light to the laundry room is on the ki
 
 ## Feeding the Animals
 I leave cans of both dog and cat food on the stove, along with the can opener. Please give Harri half a can of dog food and Trevor 1/2 to 3/4 of a can of cat food. For the sake of simplicity, just go ahead and open a fresh can each time and put what is left in the can in the fridge. I'll leave can covers and foil on the stove. That way you don't have to fuss with warming cold food.
-* Harri takes his 1/2 can of food in the red bowl on the ground to thr right as you enter the kitchen.
+* Harri takes his 1/2 can of food in the red bowl on the ground to the right as you enter the kitchen.
 * Trevor takes his 1/2-3/4 can of food on the piece of furniture in the dining room by the window. I'll leave little bowls for his food on the stove. You can just throw the previous dirty bowl in the sink.
   
